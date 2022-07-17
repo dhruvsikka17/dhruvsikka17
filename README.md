@@ -66,5 +66,5 @@
 
 ---
 
-> ### "Screwing up is an art if you're brave enough"
+> ### "The greatest value of a picture is whenit forces us to notice what we never expected to see"
 
