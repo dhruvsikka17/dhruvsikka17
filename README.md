@@ -66,5 +66,5 @@
 
 ---
 
-> ### "The greatest value of a picture is whenit forces us to notice what we never expected to see"
+> ### "The greatest value of a picture is when it forces us to notice what we never expected to see"
 
